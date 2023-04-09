@@ -63,4 +63,3 @@ Open HYROCOPT.exe.
 Open Steam and launch PUBG.
 
 Enjoy
-# PASSWORD FOR ZIP ARCHIVE: 23
